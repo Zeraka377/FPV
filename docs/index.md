@@ -1,5 +1,5 @@
 
-# Privacy Policy – [Application Name]
+# Privacy Policy – First Person View VMA
 
 **Last updated: November 24, 2026**
 
